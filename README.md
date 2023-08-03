@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AmritSbisht
+- 👋 Hi, I’m @AmritBisht
 - 📫 How to reach me amritsinghbist@gmail.com
 
 <!---
